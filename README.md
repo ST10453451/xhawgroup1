@@ -7,9 +7,10 @@ Kelsy Madondo (ST10459795) BUSINESS ANALYST
 
 Bonang Sepheu (ST10443731) DATA ADMINISTRATOR
 
+*Please note that we are sharing the software developer role.
+
 Empowering the nation designs report. 
 
- 
 
 Summary 
 
